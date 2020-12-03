@@ -1,1 +1,1 @@
-![Image of Yaktocat](https://octodex.github.com/images/yaktocat.png)
+![https://www.linkedin.com/in/brandonrodriguezfernandez/](https://octodex.github.com/images/yaktocat.png)
